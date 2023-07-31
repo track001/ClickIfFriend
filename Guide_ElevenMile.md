@@ -10,7 +10,25 @@
 This is mostly a breakdown of the boulders in the area and a recommendation of areas that have what everyone wants to do. I have the coordinates downloaded in advance but the Spray Boulder offers good sun protection for the first half of the day, and I imagine we will mess around in the water for a bit (or at least I will lol). This is to give you a general idea of what you may want to try/get psyched. But it will be a relaxed day (: Those who have sport gear please bring it, we will all meet at Springs Climbing Center on Saturday morning and figure out cars from there. I will cover the entrance fee, but I do need to know if we are taking more than 2 cars in advance (i.e. do I need $20 or $30 of cash on hand).
 
 **Try to bring**: Sunscreen, climbing shoes, chalk, sport gear (harness and ropes if you have them), (I will bring 3 bouldering pads and James will bring 2), shoes that can go in the water, and a waterbottle. The bugs aren't that bad so you don't need bug spray unless you want to.
-  
+
+
+Here's the text message copy and pasted for those of you that clicked on the link and didn't actually read the essay that I wrote:
+```Hey guys, I finally got around to making the group chat- sorry to the people I told I was going to do this earlier in the week and not sorry to the people I didn't actually overpromise to. 
+
+We will be going to Eleven Mile Canyon this Saturday, August 5th. Hoping to get there around 11:30am (it's about an hour from Springs Climbing Center a.k.a. SCC) We are going to all meet at SCC so we can get a proper headcount and hopefully only take 2 cars. The entrance fee is $9 cash to the canyon, so I will try to locate a $20 bill prior to arrival. (Assuming we take a maximum of 2 cars so I need to get a headcount). 
+- Meet at SCC at 10:30 am.
+- Get to Eleven Mile by 11:30 am.
+- Climb until roughly 5:00 pm or a little earlier.
+- Eat at "The Fat BBQ Shack" which closes at 6:00 pm. Located at the entrance of the canyon. 38283 US-24, Lake George, CO 80827
+
+Climbs: Spray wall (sport and boulder) for the times the temperatures will be hottest - the spray wall is in the shade and right next to water. Bring shoes or something you're comfortable messing around the water in. 
+
+Here is a guide I wrote that you guys can scroll though for info on the climbs in the canyon: https://github.com/track001/ClickIfFriend/blob/main/Guide_ElevenMile.md
+It's tailored towards our climbing ranges and is meant to be a relaxed thing.
+
+Car: Ideally 2 cars that are taking 5 crash pads - sport gear, and 8 people. (Is it doable - I'll try to grab $20-$30 in case we need to take 3 cars). 
+People: Molly, Carson, Tristan, Elias, Luci, Nick, James, Ti.
+```
 # Areas: Eleven Mile Canyon and Heaven's Gate
 ## Spray Boulder/Wall
 - Coordinates: 	38.93993, -105.40626 -- Park right before bridge and walk to the boulder (5 minutes) 
