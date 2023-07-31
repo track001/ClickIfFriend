@@ -15,8 +15,8 @@ This is mostly a breakdown of the boulders in the area and a recommendation of a
 Here's the text message copy and pasted for those of you that clicked on the link and didn't actually read the essay that I wrote:
 
 ```
-Hey guys, I finally got around to making the group chat- sorry to the people I told I was going to do this earlier in the week and
-not sorry to the people I didn't actually overpromise to. 
+Hey guys, I finally got around to making the group chat- sorry to the people I told I was going to do
+this earlier in the week and not sorry to the people I didn't actually overpromise to. 
 
 We will be going to Eleven Mile Canyon this Saturday, August 5th. Hoping to get there around 11:30am.
 (It's about an hour from Springs Climbing Center a.k.a. SCC)
