@@ -91,7 +91,6 @@ NOT the actual photo but NEAR THIS area, you pass on the dive to the Spray Bould
 - ![image](https://github.com/track001/ClickIfFriend/assets/45890450/7f63ca7b-e828-4e64-bf24-28807d5f6c00)
 
 
-
 ## Heaven's Gate Bouldering
 - Coordinates: 38.9329, -105.3688 
 - Range: v1 - v12 (Honor)
@@ -108,7 +107,7 @@ NOT the actual photo but NEAR THIS area, you pass on the dive to the Spray Bould
 - ![image](https://github.com/track001/ClickIfFriend/assets/45890450/83fa944e-096f-4e09-9d35-020117673c47)
 - Tricks of the Trade, v11, To the right of v9, Link MP: https://tinyurl.com/yhw3ek82
 - ![image](https://github.com/track001/ClickIfFriend/assets/45890450/a6d238fb-29e7-45f6-ba62-96df174d1754)
-- Flo Storm, v8, 8a:https://tinyurl.com/3x5rcxtx-  BC:https://tinyurl.com/bdcvvknv,Boulder,Close to Twisted Methods and Honor Amongst Thieves
+- Flo Storm, v8, 8a:https://tinyurl.com/3x5rcxtx-  BC:https://tinyurl.com/bdcvvknv,Boulder, Close to Twisted Methods and Honor Amongst Thieves
 - Centerpede, v8, TBD-Austin G knows where it is (Heaven's Gate), Eleven Mile Canyon, 8a:https://tinyurl.com/2www4d3u - BC: https://www.betacache.com/climbs/14337/, N/A, Boulder, Not sure on location
 
 ## Unsorted - Areas not Sure
