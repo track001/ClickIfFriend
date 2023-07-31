@@ -1,10 +1,10 @@
 * Mountain Project Page: Eleven Mile- https://www.mountainproject.com/area/105744304/elevenmile-canyon
 
 ### Ti's Proposed Areas to cover a range of bouldering and sport climbing:
-- Spray Wall: https://www.mountainproject.com/area/105816996/spray-wall (Bouldering v4-v12 and Sport 5.10a-5.14d)
-- Springer Gulch Boulders: https://www.mountainproject.com/area/117023925/springer-gulch-bouldering (Just Bouldering, v2-v6)
-- Murray River Boulders: https://www.mountainproject.com/area/105745924/murray-boulders-river-boulders (Just Bouldering, v1-v5)
-- River Wall: https://www.mountainproject.com/area/105745361/river-wall (Just Sport, 5.9-5.12a)
+- Spray Wall: https://www.mountainproject.com/area/105816996/spray-wall (Bouldering v4-v12 and Sport 5.10a-5.14d) Shaded area.
+- Springer Gulch Boulders: https://www.mountainproject.com/area/117023925/springer-gulch-bouldering (Just Bouldering, v2-v6) In the sun.
+- Murray River Boulders: https://www.mountainproject.com/area/105745924/murray-boulders-river-boulders (Just Bouldering, v1-v5) In the sun.
+- River Wall: https://www.mountainproject.com/area/105745361/river-wall (Just Sport, 5.9-5.12a) In the sun.
   
 # Areas: Eleven Mile Canyon and Heaven's Gate
 ## Spray Boulder/Wall
