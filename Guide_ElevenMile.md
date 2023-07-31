@@ -5,6 +5,11 @@
 - Springer Gulch Boulders: https://www.mountainproject.com/area/117023925/springer-gulch-bouldering (Just Bouldering, v2-v6) In the sun.
 - Murray River Boulders: https://www.mountainproject.com/area/105745924/murray-boulders-river-boulders (Just Bouldering, v1-v5) In the sun.
 - River Wall: https://www.mountainproject.com/area/105745361/river-wall (Just Sport, 5.9-5.12a and 1 v8) In the sun.
+
+  ### File Description
+This is mostly a breakdown of the boulders in the area and a recommendation of areas that have what everyone wants to do. I have the coordinates downloaded in advance but the Spray Boulder offers good sun protection for the first half of the day, and I imagine we will mess around in the water for a bit (or at least I will lol). This is to give you a general idea of what you may want to try/get psyched. But it will be a relaxed day (: Those who have sport gear please bring it, we will all meet at Springs Climbing Center on Saturday morning and figure out cars from there. I will cover the entrance fee, but I do need to know if we are taking more than 2 cars in advance (i.e. do I need $20 or $30 of cash on hand).
+
+**Try to bring**: Sunscreen, climbing shoes, chalk, sport gear (harness and ropes if you have them), (I will bring 3 bouldering pads and James will bring 2), shoes that can go in the water, and a waterbottle. The bugs aren't that bad so you don't need bug spray unless you want to.
   
 # Areas: Eleven Mile Canyon and Heaven's Gate
 ## Spray Boulder/Wall
