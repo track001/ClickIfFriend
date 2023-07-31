@@ -27,6 +27,7 @@ The entrance fee is $9 cash to the canyon, so I will try to locate a $20 bill pr
 - Get to Eleven Mile by 11:30 am.
 - Climb until roughly 5:00 pm or a little earlier.
 - Eat at "The Fat BBQ Shack" which closes at 6:00 pm. Located at the entrance of the canyon.
+It's a 10 minute drive or less out of the canyon. to get to the restaurant. 
 Address is: 38283 US-24, Lake George, CO 80827.
 
 Climbs: Spray wall (sport and boulder) for the times the temperatures will be hottest.
