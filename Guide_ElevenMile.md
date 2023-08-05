@@ -50,7 +50,7 @@ People: Molly, Carson, Tristan, Elias, Luci, Nick, James, Ti.
 - ![image](https://github.com/track001/ClickIfFriend/assets/45890450/aac21b87-1c08-45a6-9ea9-57ec05a7f7a1)
 
  ## Murray Boulders (River Boulders) 
- - Coordinates: 38.92738, -105.42459
+ - Coordinates: 38.9344, -105.4075
  - Range: v2 - v5
 #### Climbs:
 - Triangle Face, v2, https://tinyurl.com/5n8kwfc7,4.0/4.0,Boulder,South face of the east twin - traverse handrail and slab up
